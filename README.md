@@ -8,4 +8,4 @@
 
 有问题可联系qq：1743279786
 
-[钉钉破解版使用方法视频](https://v.qq.com/x/page/l0884kanuiq.html)
+[钉钉破解版使用方法视频](https://v.qq.com/x/page/b088406vx5p.html)
